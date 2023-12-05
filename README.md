@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NotnirwaN
+- 👋 Hi, I’m @NotnirwaN, (Pun Intended :grin: )
 - 👀 I’m interested in interesting things
 - 🌱 I’m currently learning things I dont know
 
